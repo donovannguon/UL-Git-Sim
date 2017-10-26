@@ -8,4 +8,4 @@ chris smells
 
 RNGESUS
 
-He never learned how to fly.
+In russia, you dont drive the car the car drives you.
