@@ -4,4 +4,5 @@ I love cats. :D
 Paul was frequently thrown out of the second story window :) :)
 
 The Floor was here. 
-chris smells
+
+In Russia you dont drive the car, the car drives you.
